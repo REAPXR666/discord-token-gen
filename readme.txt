@@ -1,10 +1,7 @@
-Ym#8117 - Claiming to have discord token gen but is just a logger
+Thank you for buying our Generator
 
-So i cracked it after many complaints from users saying he scammed.
+Enjoy the tool!
 
-I will be providing the "GEN" which is a logger he sends ppl
-(ITS NOT A GEN)
-He claimed to make a gen but its a token logger, chrome password stealer, and much more.
+Owners Termed and YM ;)
 
-DO NOT BUY IT
-it was very easy to crack too.
+Note: Edit config.json !
