@@ -1,10 +1,9 @@
-Thank you for buying our Generator
+CRACK OF "YMGEN DISCORD BOTTER"
+[claim to be the best]
+they got easily doxxed with litle effort
 
-Enjoy the tool!
-
-Owners Termed and YM ;)
-
-Note: Edit config.json !
+Contains a cracked *DECRYPTION* of their code
 
 Their Info
 https://my.shorturl.wtf/ym
+https://doxbin.com/upload/ym
